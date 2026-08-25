@@ -3,4 +3,4 @@
 Complete list of AI tools with descriptions.
 
 ---
- ============================================================ COMPLETE AI TOOLS
+ ============================================================ COMPLETE AI TOOLS LIST
