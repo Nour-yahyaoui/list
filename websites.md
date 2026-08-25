@@ -3,4 +3,4 @@
 Curated collection of useful websites with descriptions.
 
 ---
- ═══════════════════════════════════════════════════════════════ 🌐 USEFUL WEBSITES DIRECTORY A Curated Collection
+ ═══════════════════════════════════════════════════════════════ 🌐 USEFUL WEBSITES DIRECTORY A Curated Collection ═══════════════════════════════════════════════════════════════
